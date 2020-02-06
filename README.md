@@ -1,2 +1,2 @@
 # Saro-Antonello-Lovito-
-Hi there! This my first resume. Any word of advice would be good.
+Hi there! This is my first resume. Any word of advice would be good.
